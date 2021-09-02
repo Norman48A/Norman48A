@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Norman, normanafrin08@gmail.com
+- 💞️ I’m looking to collaborate
+- 📫 How to reach me normanafrin08@gmail.com
